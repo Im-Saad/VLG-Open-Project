@@ -1,1 +1,0 @@
-# VLG-Open-Project
